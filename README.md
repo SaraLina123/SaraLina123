@@ -1,5 +1,4 @@
-## Bem-vindo(a) ao perfil da SaraLina123
- 😁
+## Bem-vindo(a) ao perfil da SaraLina123😁
 
  <div>
    <a href="https://github.com/SaraLina123">
